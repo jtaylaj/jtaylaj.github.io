@@ -4,7 +4,7 @@ Here are a list of projects I've been working on:
 
 # My Interests
 
-I'm interested in
+I'm interested 
 
 # My Blog
 
